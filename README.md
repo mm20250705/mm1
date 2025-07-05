@@ -11,4 +11,4 @@
 想看日本AV免费资源？这里推荐5大平台：网站A有丰富的分类和快速更新；网站B提供高清、流畅的播放体验；网站C专注女优粉丝，更新及时；网站D优化了移动端，随时随地观看；网站E既有免费资源，又有更多付费选择，满足不同需求。所有平台都提供高质量的日本AV影片，
 确保流畅观影。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mm20250705/mm1 ）</span>
